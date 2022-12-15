@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dhiya30 and a poliglot
-- 👀 I’m interested in foreign language, history, people culture
+- 👀 I’m interested in foreign languages, history, people's culture
 - 🌱 I’m currently learning programming, social-interaction
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
